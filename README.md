@@ -22,4 +22,4 @@ Atualmente, sou CEO e Consultor Sênior na **EAR Consulting**, focado em automa�
 *   📖 **E-book - Horizontes Disruptivos:** Publicação executiva sobre Inovação Tecnológica, Estratégia Empresarial, Computação Quântica e IA.
 *   🏢 **EAR Consulting Tech Hub:** Casos de uso e arquiteturas conceituais para resolução de gargalos de integração em sistemas de grande porte.
 
-📫 **Como falar comigo:** [Seu e-mail] | [Link do LinkedIn] | [ear-consulting.lovable.app]
+📫 **Como falar comigo:** [ronaldo.gaia@gmail] | [https://www.linkedin.com/in/ronaldo-gaia] | [ear-consulting.lovable.app]
